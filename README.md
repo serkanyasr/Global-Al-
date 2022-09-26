@@ -1,3 +1,2 @@
 # Global-Al-
 
-Serkan Yaşar
